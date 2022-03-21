@@ -26,10 +26,10 @@ Machst sogar Fehler beim Versuch, dich zu integrieren.
 Du bist die Gaußfunktion, du kannst nur verlieren.
 
 Wärend du weiter daran scheiterst diese Lines zu kapieren,  
-beginn' deine Gedanken sich zu differenzieren.  
-Du kämpfst und denkst wirklich deine Chancen steigen stetig,  
-doch am Ende stellst du fest: dein Leben ist punktsymetrisch.  
-Addiert man es auf, bleibt's in der Summe unerheblich.
+erhöhe ich die Grundfrequenz um mich von dir zu differenzieren.  
+Ich bleib locker entspannt, deine Panik steigt stetig,  
+hast du es schon erkannt? dein Leben ist punktsymetrisch!  
+Addiert man es auf, bleibt's in der Summe unerheblich. 
 
 Du hältst dich für gefährlich, doch bist eher grenzwertig.  
 Bist schon längst am Ende, doch ich bin noch nicht fertig.  

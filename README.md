@@ -25,7 +25,7 @@ Du bist so langweilig normal, würdest gern besonders sein.
 Machst sogar Fehler beim Versuch, dich zu integrieren.  
 Du bist die Gaußfunktion, du kannst nur verlieren.
 
-Wärend du weiter daran scheiterst diese Lines zu kapieren,  
+Während du weiter daran scheiterst diese Lines zu kapieren,  
 erhöhe ich die Grundfrequenz um mich von dir zu differenzieren.  
 Ich bleib locker entspannt, deine Panik steigt stetig,  
 hast du es schon erkannt? dein Leben ist punktsymetrisch!  

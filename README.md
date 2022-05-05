@@ -42,6 +42,12 @@ Du glaubst du seiest krass, weil dein Bizeps defininert ist,
 doch mein Träger ist kompakt, dein Körper nur ein Quasimagma,  
 und das ist kein Komplement, denn es invertiert nicht.
 
+Ich zerleg dich auch im Schlaf mit links, wie einen Partialbruch.  
+Dein Verstand passt elegant an den Rand von Fermats Buch.  
+Schon er hat sich gefragt: wem willst du was beweisen?  
+Deine Schlüsse sind zyklisch wie eulersche Kreise,  
+dein Flow ist defekt und deine Lyrics sind scheiße.
+
 Ich chill im Interval, du bleibst draußen.  
 Dein Zähler zu gering, dein Quotient liegt bei minus 9000.  
 Jetzt bist du an der Reihe, doch da kommt nicht viel.  

@@ -10,7 +10,7 @@ Statt im Einheitskreis zu drehen, konvergier lieber mit Menschen,
 auf der Suche nach gemeinsamen Fourierkoeffizienten.
 
 Wäre dies ein Battlerap, würd' ich noch ergänzen,  
-dass dein Fassungsvermögen asymtotisch beschränkt ist.  
+dass dein Fassungsvermögen asymptotisch beschränkt ist.  
 Es wächst zwar ziemlich schnell, nämlich exponentiell,  
 doch dein negatives Mindset steht im Exponenten.
 
